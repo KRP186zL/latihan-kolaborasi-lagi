@@ -1,2 +1,2 @@
 # latihan-kolaborasi-lagi
-<br/>lanjut bos
+<br/>lanjut bosku
