@@ -1,2 +1,3 @@
-# latihan-kolaborasi-lagi
-<br/>lanjut bosku
+Daftar nama kontributor : 
++ Shylpie Putri Kirana
+- Kirana Euonia
